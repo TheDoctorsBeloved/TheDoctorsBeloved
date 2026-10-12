@@ -67,7 +67,7 @@ ${\textsf{\color{#} friends of friends aka oomfs in law free to int always unles
 </p>
 
 <p align="center">
-  <img width="300" src="https://github.com/TheDoctorsBeloved/TheDoctorsBeloved/blob/8d82667ae7d981cb07b8296b85540efc7fa4a87a/Untitled275_20260725030741.png">
+  <img width="400" src="https://github.com/TheDoctorsBeloved/TheDoctorsBeloved/blob/8d82667ae7d981cb07b8296b85540efc7fa4a87a/Untitled275_20260725030741.png">
 </p>
 
 <p align="center">
