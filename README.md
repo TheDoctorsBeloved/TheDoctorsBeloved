@@ -55,7 +55,7 @@ ${\textsf{\color{#87CEEB} friends of friends aka oomfs in law free to int always
 </details>
 
 <p align="center">
- <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=b2d8d8&width=435&lines=Sweet+tooth+for+you..;I'm+wide+awake..;The+sugar+went+straight+to+my+brain..;Feel+like+a+kid..+It's+cardiac..;A+safety+pin...;I+like+you...;Say+it+back+%3C3)](https://git.io/typing-svg" /></a>
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=b2d8d8&width=435&lines=I've+already+bid+farewell;to+the+self+buried;beneath+the+frostlands;when+the+snow+falls;we'll+meet+again;among+the+new+blooms+of+spring..+%3C3)](https://git.io/typing-svg" /></a>
 </p>
 
 <p align="center">
