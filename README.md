@@ -51,7 +51,7 @@ ${\textsf{\color{#} Those into wuwa, hsr, zzz, and genshin!}}$
 ${\textsf{\color{#87CEEB} dandys world IF YOURE FRIENDS WITH ME!}}$
 ${\textsf{\color{#b2d8d8} other yumeshippers!}}$
 ${\textsf{\color{#} Wanderer and luuk kins CAN int but iwec, don't act like im your wife unless youre my bf or if its jokingly}}$
-${\textsf{\color{#}87CEEB friends of friends aka oomfs in law free to int always unless you fit my dni criteria!}}$
+${\textsf{\color{#87CEEB} friends of friends aka oomfs in law free to int always unless you fit my dni criteria!}}$
 </details>
 
 <p align="center">
