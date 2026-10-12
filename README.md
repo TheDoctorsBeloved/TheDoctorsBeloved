@@ -59,7 +59,7 @@ ${\textsf{\color{#} friends of friends aka oomfs in law free to int always unles
 </p>
 
 <p align="center">
-  <img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FWanderersWife&labelColor=%23800020&countColor=%23702963&labelStyle=upper"/>
+  <img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FTheDoctorsBeloved&label=Patients&labelColor=%23d9e3f0&countColor=%232ccce4"/>
 </p>
 
 <p align="center">
